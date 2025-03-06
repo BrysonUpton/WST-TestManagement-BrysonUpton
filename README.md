@@ -2,6 +2,7 @@
 
 Name: Bryson Lee Upton
 Session: Afternoon
+Profolio: https://sites.google.com/view/brysonupton-wstprofolio/daily-work 
 
 Why 3D Animation and Video Game Design at WST?
 
